@@ -5,7 +5,7 @@ New Testament (27 books) available.
 
 Read Bible, Download Android/Desktop Apps
 
-http://freebiblesindia.com/bible/kan/ (Coming soon)
+http://freebiblesindia.in/bible/kan/ (Coming soon)
 
 Thanks
 =======
